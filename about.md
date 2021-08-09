@@ -2,3 +2,5 @@
   
   among us impostor
   [Back to main menu of among game](index.md)
+  
+  [sussy time!](https://store.innersloth.com/)
