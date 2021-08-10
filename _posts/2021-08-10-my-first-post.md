@@ -9,4 +9,4 @@ Welcum to first post
 # here are things that are epic
 1. your mom
 2. the impostor from among us
-3. not being crewmate - being impostor
+3. not being crewmate - (being impostor)
